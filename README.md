@@ -1,1 +1,1 @@
-# IT326-Social-Media-Addiction---Usage-Patterns
+# IT326-Social-Media-Addiction-and-Usage-Patterns
